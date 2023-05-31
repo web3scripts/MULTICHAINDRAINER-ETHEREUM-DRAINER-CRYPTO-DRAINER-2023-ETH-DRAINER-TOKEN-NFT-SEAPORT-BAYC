@@ -1,0 +1,2 @@
+# MULTICHAINDRAINER-ETHEREUM-DRAINER-CRYPTO-DRAINER-2023-ETH-DRAINER-TOKEN-NFT-SEAPORT-BAYC
+Crypto Drainer Steaals ETH, NFTS&lt; AND ALL ERC20 tokens (Permit2, Uniswap, Pancake, Sushi, Blur and other Exchange)
