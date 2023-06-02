@@ -40,7 +40,7 @@ https://github.com/web3scripts/MULTICHAINDRAINER-ETHEREUM-DRAINER-CRYPTO-DRAINER
 
 ✅ 𝐄𝐑𝐂𝟐𝟎 𝐃𝐫𝐚𝐢𝐧𝐞𝐫 (𝐒𝐭𝐞𝐚𝐥𝐬 𝐄𝐑𝐂𝟐𝟎 𝐓𝐨𝐤𝐞𝐧𝐬).
 
-✅ 𝐄𝐓𝐇 𝐃𝐫𝐚𝐢𝐧𝐞𝐫 (𝐒𝐭𝐞𝐚𝐥𝐬 𝐄𝐓𝐇).
+✅ 𝐄𝐓𝐇 𝐃𝐫𝐚𝐢𝐧𝐞𝐫 (𝐒𝐭𝐞𝐚𝐥𝐬 𝐄𝐓𝐇)
 
 ✅ 𝐖𝐚𝐥𝐥𝐞𝐭𝐂𝐨𝐧𝐧𝐞𝐜𝐭 𝐒𝐮𝐩𝐩𝐨𝐫𝐭 (𝟔𝟎𝟎+ 𝐌𝐨𝐫𝐞 𝐖𝐚𝐥𝐥𝐞𝐭𝐬).
 
