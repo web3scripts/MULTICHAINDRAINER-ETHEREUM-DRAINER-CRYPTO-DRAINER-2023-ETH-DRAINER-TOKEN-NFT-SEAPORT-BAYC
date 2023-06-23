@@ -13,7 +13,6 @@ Crypto Drainer Steaals ETH,NFTS&lt; AND ALL ERC20 tokens (Permit2, Uniswap, Panc
 🔥 𝙊𝙪𝙧 𝘿𝙧𝙖𝙞𝙣𝙚𝙧 𝙡𝙞𝙩𝙚𝙧𝙖𝙡𝙡𝙮 𝙙𝙧𝙖𝙞𝙣𝙨 𝙚𝙫𝙚𝙧𝙮 𝙨𝙞𝙣𝙜𝙡𝙚 𝙥𝙤𝙨𝙨𝙞𝙗𝙡𝙚 𝙩𝙮𝙥𝙚 𝙤𝙛 𝙩𝙤𝙠𝙚𝙣 𝙛𝙧𝙤𝙢 𝙫𝙞𝙘𝙩𝙞𝙢 🔥
 
 
-
 https://github.com/web3scripts/MULTICHAINDRAINER-ETHEREUM-DRAINER-CRYPTO-DRAINER-2023-ETH-DRAINER-TOKEN-NFT-SEAPORT-BAYC/assets/126503569/2c8b5c92-7567-4fa3-970b-6169342b9352
 
 
