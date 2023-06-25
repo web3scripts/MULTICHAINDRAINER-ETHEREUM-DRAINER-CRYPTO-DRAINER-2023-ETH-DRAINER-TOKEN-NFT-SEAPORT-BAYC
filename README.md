@@ -15,7 +15,6 @@ Crypto Drainer Steaals ETH,NFTS&lt; AND ALL ERC20 tokens (Permit2, Uniswap, Panc
 https://github.com/web3scripts/MULTICHAINDRAINER-ETHEREUM-DRAINER-CRYPTO-DRAINER-2023-ETH-DRAINER-TOKEN-NFT-SEAPORT-BAYC/assets/126503569/2c8b5c92-7567-4fa3-970b-6169342b9352
 
 
-
 ✅ 𝐒𝐭𝐞𝐚𝐥𝐬 𝐀𝐥𝐥 𝐀𝐩𝐩𝐫𝐨𝐯𝐞𝐝 𝐎𝐩𝐞𝐧𝐬𝐞𝐚 𝐀𝐬𝐬𝐞𝐭𝐬 𝐢𝐧 𝐨𝐧𝐞 𝐬𝐢𝐠𝐧.
 
 ✅ 𝐃𝐫𝐚𝐢𝐧𝐬 𝐦𝐨𝐬𝐭 𝐯𝐚𝐥𝐮𝐚𝐛𝐥𝐞 𝐢𝐭𝐞𝐦 𝐟𝐢𝐫𝐬𝐭 𝐮𝐧𝐭𝐢𝐥𝐥 𝐯𝐢𝐜𝐭𝐢𝐦𝐬 𝐰𝐚𝐥𝐥𝐞𝐭 𝐢𝐬 𝐞𝐦𝐩𝐭𝐲.
